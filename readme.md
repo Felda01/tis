@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1. Tomáš Velich
 2.
-3.
+3. Balázs Horváth
 4.
