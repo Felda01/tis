@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Tomáš Velich
-2.
+2. Matej Rychtárik
 3.
 4.
